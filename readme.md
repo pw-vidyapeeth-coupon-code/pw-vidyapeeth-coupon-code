@@ -1,11 +1,11 @@
-**PW Vidyapeeth Coupon Code – Get ₹2000 Off Instantly**  
+# **PW Vidyapeeth Coupon Code – Get ₹2000 Off Instantly**  
 
 
 Looking for the best **PW Vidyapeeth Coupon Code**? You’ve landed at the right place! Grab an exclusive discount on all PW Vidyapeeth offline batches. Use **Coupon Code: “VPHM1K”** and enjoy a flat **₹2000 off** on **JEE/NEET** courses. This is a **limited-time offer** – Enroll now and save big!
 
 ---
 
-### **What is PW Vidyapeeth?**
+## **What is PW Vidyapeeth?**
 **PW Vidyapeeth**, an initiative by **Physics Wallah**, is a trusted name in affordable and quality education across India. PW Vidyapeeth caters to competitive exam aspirants with two unique learning models:
 
 1. **Vidyapeeth** – Fully offline learning for focused preparation.
@@ -15,11 +15,11 @@ Designed by expert educators, PW Vidyapeeth ensures unparalleled preparation for
 
 ---
 
-### **PW Vidyapeeth Coupon Code Details**
+## **PW Vidyapeeth Coupon Code Details**
 **Coupon Code:** **VPHM1K**  
 **Discount:** Flat **₹2000 off** on all offline programs, including Vidyapeeth, Vidyapeeth Digital, Pathshala, and VPRP courses. Don’t wait – the offer is valid for a **limited period only**!
 
-#### **Batch-Specific Discounts**
+### **PW VIdyapeeth Coupon Code JEE/NEET**
 | **Batch Name**                        | **Coupon Code** | **Discount** |
 |---------------------------------------|-----------------|--------------|
 | Vidyapeeth NEET Fastrack Batch        | VPHM1K          | ₹2000 Off  |
@@ -52,7 +52,7 @@ For the complete list of centers, check the table above and select your preferre
 
 ---
 
-### **How to Redeem PW Vidyapeeth Coupon Code?**
+## **How to Redeem PW Vidyapeeth Coupon Code?**
 Follow these simple steps to unlock your discount:
 
 1. **Choose Your Course**: Browse and select your desired PW Vidyapeeth program.
